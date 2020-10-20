@@ -1,0 +1,2 @@
+# Gypsum-greenfutureStudio
+Gypsum board is the result of the evolution of the building industry. For thousands of years, plaster made from lime, sand, animal hair and other ingredients was used to create a smooth interior finish. Later, it was discovered that gypsum dried faster than lime, so gypsum became the main ingredient in plaster. It wasn’t until well into the 20th century, though, that sheets of plasterboard began to replace traditional wet plastering.
